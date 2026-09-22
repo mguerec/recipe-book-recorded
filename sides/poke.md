@@ -12,6 +12,7 @@
 - green onion
 - grated ginger
 - lime
+- add a spoon of mayo!
 
 ## Instructions
 

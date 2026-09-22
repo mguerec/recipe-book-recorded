@@ -6,7 +6,7 @@
 - 1 cup strawberries, hulled and halved
 - 1 cup blueberries
 - 1 cup grapes, halved
-- 1 banana, sliced
+- 1 banana, sliced or crushed
 - 1 apple, cored and chopped
 - 1 orange, peeled and sectioned
 - Juice of 1 lime or lemon (to prevent the fruit from browning and to add a bit
@@ -34,6 +34,7 @@
 
 4. **Garnish (Optional):**
    - If you're using fresh mint leaves for garnish, sprinkle them on top of the salad for a pop of color and a fresh aroma.
+   - Sprinkle lemon zest on top of the salad
 
 5. **Serve:**
    - Enjoy the fruit salad as is, or chill it in the refrigerator for about an hour before serving for a refreshing treat.
